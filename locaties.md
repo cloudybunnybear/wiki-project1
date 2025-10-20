@@ -1,1 +1,4 @@
- # locaties
+ # Waar kom ik de meeste Duitse herders tegen? 
+Duitse herders zijn overal terug te vinden wereldwijd. 
+Ze zijn zeker heel populair in Duitsland en in de Verenigde Staten. Omdat het ras origineel van Duitsland is, is het ook heel normaal dat dit ras daar ook terug te vinden is. In de Verenigde Staten zijn de Duitse herders ook heel populair en worden daar gebruikt als hulphonden en andere voor andere diensten. Wist je dat in West Virginia de Duitse herders in de top drie zijn  hondenrassen van Washington? 
+[bron](https://alloftheanimals.com/where-do-german-shepherds-live-around-the-world/#:~:text=Which%20state%20has%20the%20most%20German%20Shepherds%3F%20West,highest%20per-capita%20dog%20ownership%20rate%20is%20West%20Virginia.)
