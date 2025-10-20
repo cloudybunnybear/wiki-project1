@@ -1,4 +1,4 @@
-#Soort duitse herders
+# Soort duitse herders
 Je hebt twee verschillende soorten Duitse herders, namelijk een showlijn en werklijn. 
 ##een showlijn herder: 
 Deze soort heeft een milder karakter, ze zijn ook minder stabieler in hun gedrag. 
