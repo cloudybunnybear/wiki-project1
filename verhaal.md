@@ -3,4 +3,3 @@ Eind 19de eeuw werd er in Duitsland gezocht naar de hond die schapen zou kunnen 
 
 [bron](https://www.youtube.com/watch?v=n_xAD_7DjQE)
 
-Wist je dat Duitse herders een sterke reukvermogen hebben waardoor ze gebruikt worden voor opsporingen en reddingen. 
